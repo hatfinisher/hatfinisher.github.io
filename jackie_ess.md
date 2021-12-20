@@ -8,7 +8,7 @@ I'm *not very online* right now, but email is welcome. Avoiding social media unt
 I published my first novel, Darryl with [Clash Books](https://www.clashbooks.com/) in May 2021, after writing the first sketches in late 2016. You could buy it [here](https://bookshop.org/books/darryl/9781944866846), or really anywhere. It's the story of a guy in an unusual sex lifestyle. You might relate to him.
 
 ###### Press for Darryl
-Darryl got some very smart and generous reviews. And for a little while I did a lot of interviews and readings, some of which went to interesting places. I like most of what I said but I'm also a little bit suspicious of the impulse to do writing without writing, maybe there is some half-baked philosophy there or talking over the book. I think most writers dream of writing a book that
+Darryl got some very smart and generous reviews. And for a little while I did a lot of interviews and readings, some of which went to interesting places. I like most of what I said but I'm also a little bit suspicious of the impulse to do writing without writing, maybe there is some half-baked philosophy there or talking over the book, or an indication I should have held onto it longer.
 - [Zoe Hu, The White Review, August 2021](https://www.thewhitereview.org/reviews/an-ecstasy-of-shame/)
 - [Dominic Fox, Review 31, June 2021](http://review31.co.uk/article/view/777/a-pair-of-ragged-claws) 
 - [with Hayden Bennett, Believer Mag, July 2021](https://believermag.com/logger/an-interview-with-jackie-ess/)
