@@ -1,7 +1,8 @@
 # Jackie Ess
+I'm a writer in my late thirties.
 
 ## Darryl
-I published my first novel, Darryl with [Clash Books](https://www.clashbooks.com/) in May 2021, after writing the first sketches in late 2016. You could buy it [here](https://bookshop.org/books/darryl/9781944866846), or really anywhere. It's the story of a guy in an unusual sex lifestyle. You might relate to him.
+I published my first novel, [Darryl](https://bookshop.org/books/darryl/9781944866846) with [Clash Books](https://www.clashbooks.com/) in May 2021. You could buy it [here](https://bookshop.org/books/darryl/9781944866846), or really anywhere. It's the story of a guy in an unusual sex lifestyle. You might relate to him.
 
 ###### Reviews, Interviews, Podcasts
 - Review by [Zoe Hu, The White Review, August 2021](https://www.thewhitereview.org/reviews/an-ecstasy-of-shame/)
