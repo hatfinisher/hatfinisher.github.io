@@ -1,8 +1,8 @@
 # Jackie Ess
-I'm a writer in my late thirties.
+
 
 ## Darryl
-I published my first novel, [Darryl](https://bookshop.org/books/darryl/9781944866846) with [Clash Books](https://www.clashbooks.com/) in May 2021. You could buy it [here](https://bookshop.org/books/darryl/9781944866846), or really anywhere. It's the story of a guy in an unusual sex lifestyle. You might relate to him.
+I published my first novel, [Darryl](https://bookshop.org/books/darryl/9781944866846), with [Clash Books](https://www.clashbooks.com/) in May 2021. It's the story of a guy in an unusual sex lifestyle. You might relate to him.
 
 ###### Reviews, Interviews, Podcasts
 - Review by [Zoe Hu, The White Review, August 2021](https://www.thewhitereview.org/reviews/an-ecstasy-of-shame/)
@@ -16,14 +16,13 @@ I published my first novel, [Darryl](https://bookshop.org/books/darryl/978194486
 - Podcast with [Joe Bielecki, Writing the Rapids, June 2021](http://www.noisemakerjoe.com/wtr/2021/6/30/getting-darryled-with-jackie-ess)
 
 ## Other Projects
-- **New fiction:** this is where my energy is, but usually better to hold my tongue until it's done. Some stories ought to come out in 2022.
 - **Darryl Audiobook:** I'm recording this myself and serializing it on [patreon](https://www.patreon.com/jackie_ess). I tend to update on Tuesdays or Wednesdays. There are no differences between the reward tiers. I started in December 2021 and expect I will be finished by sometime in Spring 2022.
-- **Other writing:** I wrote [a short review of Holly Melgard's *Fetal Position*](https://www.artforum.com/print/202110/jackie-ess-on-holly-melgard-s-fetal-position-87249) for Artforum Best of 2021.
+- **Other writing:** You'll see.
 
 ## Events
 None planned for now. Stay safe.
 
 ## Contact
-I'm *not very online* right now, but email is welcome. Avoiding social media until at least the end of 2023, accounts unmonitored. I don't intend this in an antisocial way or as a disappearing act. Some personalities are better suited to abstinence than moderation.
+I'm *not very online* right now, but email is welcome. Avoiding social media until at least the end of 2023, accounts locked and unmonitored. I don't intend this in an antisocial way or as a disappearing act. I think some personalities are better suited to abstinence than moderation.
 
-`[firstname].[lastname].writer@gmail.com`
+`[firstname].[lastname].writer@gmail.com` or `trip to taller windows at protonmail dot com (no spaces)`
