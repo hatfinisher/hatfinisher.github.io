@@ -11,7 +11,7 @@ I published my first novel, [Darryl](https://bookshop.org/books/darryl/978194486
 - Interview with [with Violet Spurlock, Bæst Journal, August 2021](https://www.baestjournal.com/violet-spurlock-jackie-ess)
 - Interview with [with Lindsay Lerman, Southwest Review, July 2021](http://southwestreview.com/one-has-to-take-care-in-handling-fire-a-conversation-with-jackie-ess/)
 - Interview with [with Elle Nash, The Creative Independent, July 2021](https://thecreativeindependent.com/people/writer-jackie-ess-on-making-work-that-doesnt-fit-neatly-into-categories/)
-- Interview with [with Emma Rindlisbacher, The Agloe Review (substack), June 2021](https://agloereview.substack.com/p/jackie-ess)
+- Interview with [with Emma Rindlisbacher, The Agloe Review, June 2021](https://agloereview.substack.com/p/jackie-ess)
 - Podcast with [Tuck Woodstock, Gender Reveal, November 2021](https://gender.libsyn.com/episode-104-jackie-ess)
 - Podcast with [Joe Bielecki, Writing the Rapids, June 2021](http://www.noisemakerjoe.com/wtr/2021/6/30/getting-darryled-with-jackie-ess)
 
