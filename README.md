@@ -28,4 +28,4 @@ I'm *not very online* right now, but email is welcome. Avoiding social media unt
 
 `[firstname].[lastname].writer@gmail.com` or `trip to taller windows at protonmail dot com (no spaces)`
 
-Last Updated 2021-01-28
+Last Updated 2022-01-28
