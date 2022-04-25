@@ -17,15 +17,17 @@ I published my first novel, [Darryl](https://bookshop.org/books/darryl/978194486
 - Podcast with [Joe Bielecki, Writing the Rapids, June 2021](http://www.noisemakerjoe.com/wtr/2021/6/30/getting-darryled-with-jackie-ess)
 
 ## Other Projects
-- **Darryl Audiobook:** I'm recording this myself and serializing it on [patreon](https://www.patreon.com/jackie_ess). I tend to update on Tuesdays or Wednesdays (been very lax with this but planning a burst of recording energy soon). There are no differences between the reward tiers. I started in December 2021 and expect I will be finished by sometime in Spring 2022.
+- **Darryl Audiobook:** I'm recording this myself and serializing it on [patreon](https://www.patreon.com/jackie_ess). I've been very lax with this but planning a burst of recording energy soon). There are no differences between the reward tiers. I started in December 2021 and expect I will be finished by sometime in Spring 2022. Dreading this, to be honest. Never again.
 - **Other writing:** You'll see.
 
 ## Events
 None planned for now. Stay safe.
 
 ## Contact
-I'm *not very online* right now, but email is welcome. Avoiding social media until at least the end of 2023, accounts locked and unmonitored. I don't intend this in an antisocial way or as a disappearing act. I think some personalities are better suited to abstinence than moderation.
+I seem to be back on twitter again, I'm as disappointed as anyone but having fun there ([@jackie_ess](https://twitter.com/jackie_ess)).
 
-`[firstname].[lastname].writer@gmail.com` or `trip to taller windows at protonmail dot com (no spaces)`
+Email is sometimes better. `[firstname].[lastname].writer@gmail.com` or `trip to taller windows at protonmail dot com (no spaces)`
 
-Last Updated 2022-01-28
+I'd probably talk to you on the phone but I'm not posting that here.
+
+Last Updated 2022-04-25
