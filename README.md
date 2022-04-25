@@ -24,7 +24,7 @@ I published my first novel, [Darryl](https://bookshop.org/books/darryl/978194486
 None planned for now. Stay safe.
 
 ## Contact
-I seem to be back on twitter again, I'm as disappointed as anyone but having fun there ([@jackie_ess](https://twitter.com/jackie_ess)).
+I seem to be back on twitter again. I'm as disappointed as anyone but having fun there. ([@jackie_ess](https://twitter.com/jackie_ess)).
 
 Email is sometimes better. `[firstname].[lastname].writer@gmail.com` or `trip to taller windows at protonmail dot com (no spaces)`
 
