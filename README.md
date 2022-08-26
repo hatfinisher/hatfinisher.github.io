@@ -1,5 +1,8 @@
 # Jackie Ess
 
+## In the Absolute Balloon
+A new short story in the Chicago Review, August 2022. You can read it online. [In the Absolute Balloon](https://www.chicagoreview.org/in-the-absolute-balloon/)
+
 
 ## Darryl
 I published my first novel, [Darryl](https://bookshop.org/books/darryl/9781944866846), with [Clash Books](https://www.clashbooks.com/) in May 2021. It's the story of a guy in an unusual sex lifestyle. You might relate to him.
@@ -17,8 +20,8 @@ I published my first novel, [Darryl](https://bookshop.org/books/darryl/978194486
 - Podcast with [Joe Bielecki, Writing the Rapids, June 2021](http://www.noisemakerjoe.com/wtr/2021/6/30/getting-darryled-with-jackie-ess)
 
 ## Other Projects
-- **Darryl Audiobook:** I'm recording this myself and serializing it on [patreon](https://www.patreon.com/jackie_ess). I've been very lax with this but planning a burst of recording energy soon). There are no differences between the reward tiers. I started in December 2021 and expect I will be finished by sometime in Spring 2022. Dreading this, to be honest. Never again.
-- **Other writing:** You'll see.
+- **Darryl Audiobook:** I'm recording this myself and serializing it on [patreon](https://www.patreon.com/jackie_ess). I've been very lax with this but planning a burst of recording energy soon). There are no differences between the reward tiers. I started in December 2021. I said I would finish it by Spring 2022 and you see how that's gone. But I will really finish it soon.
+- **Other writing:** I'm working on something long, you won't see it for a while.
 
 ## Events
 None planned for now. Stay safe.
@@ -30,4 +33,4 @@ Email is sometimes better. `[firstname].[lastname].writer@gmail.com` or `trip to
 
 I'd probably talk to you on the phone but I'm not posting that here.
 
-Last Updated 2022-04-25
+Last Updated 2022-08-25
