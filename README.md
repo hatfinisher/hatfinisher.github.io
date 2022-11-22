@@ -16,6 +16,7 @@ I'm making an audiobook, pretty informally (audiophiles steer clear), and serial
 You can also find some videos of me reading sections of the book on youtube.
 
 ###### Reviews, Interviews, Podcasts
+- Critical essay featuring Darryl by [Kay Gabriel, Yale Review, November 2022](https://yalereview.org/article/gabriel-nevada-trans-realism)
 - Interview with [Monika Woods, Triangle House Review, January 2022](https://www.triangle.house/jackie-ess-interview)
 - Review by [Zoe Hu, The White Review, August 2021](https://www.thewhitereview.org/reviews/an-ecstasy-of-shame/)
 - Review by [Dominic Fox, Review 31, June 2021](http://review31.co.uk/article/view/777/a-pair-of-ragged-claws) 
