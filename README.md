@@ -33,7 +33,7 @@ You can also find some videos of me reading sections of the book on youtube.
 None planned for now. Stay safe.
 
 ## Contact
-I seem to be back on twitter again. I'm as disappointed as anyone but having fun there. ([@jackie_ess](https://twitter.com/jackie_ess)). Due to chaos there I've also made accounts on mastodon [@jackiedotess@zirk.us](https://zirk.us/@jackiedotess) and tumblr [@jackiedotess](https://jackiedotess.tumblr.com/). At time of writing (November 2022), there isn't much there.
+I'm on mastodon [@jackiedotess@zirk.us](https://zirk.us/@jackiedotess) and tumblr [@jackiedotess](https://jackiedotess.tumblr.com/) at the moment though less active on tumblr.
 
 Email is sometimes better. `[firstname].[lastname].writer@gmail.com` or `trip to taller windows at protonmail dot com (no spaces)`
 
