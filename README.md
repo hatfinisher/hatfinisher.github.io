@@ -1,21 +1,21 @@
 # Jackie Ess
 
-## Work in Progress
-I'm working on something long. To be totally honest you won't see much of me for a while.
-
-
-## In the Absolute Balloon
-A new short story in the Chicago Review, August 2022. You can read it online. [In the Absolute Balloon](https://www.chicagoreview.org/in-the-absolute-balloon/)
-
-
 ## Darryl
 I published my first novel, [Darryl](https://bookshop.org/books/darryl/9781944866846), with [Clash Books](https://www.clashbooks.com/) in May 2021. It's the story of a guy in an unusual sex lifestyle. You might relate to him.
 
-I'm making an audiobook, pretty informally (audiophiles steer clear), and serializing it on [patreon](https://www.patreon.com/jackie_ess). I've got 2/3 of the book down and need to sit down and do the rest. Not sure I will use the patreon for anything else, but you're welcome to throw me a few bucks if you are patient and not hurting for the money. I will finish it soon.
+- I recorded a complete if somewhat unprofessional audiobook on [patreon](https://www.patreon.com/jackie_ess).
+- You can also read the book [in Italian, translated by Stefano Pirone and releasted by Pidgin Edizioni.](https://www.pidgin.it/prodotto/darryl/)
+- You can also find some videos of me reading sections of the book on youtube.
 
-You can also find some videos of me reading sections of the book on youtube.
+## In the Absolute Balloon
+Short story in the Chicago Review, August 2022. You can read it online. [In the Absolute Balloon](https://www.chicagoreview.org/in-the-absolute-balloon/)
+
+## Work in Progress
+It's better to say less, but you might see something soon.
+
 
 ###### Reviews, Interviews, Podcasts
+- Review of Italian edition of Darryl (trans. Stefano Pirone) by [Deborah D'Addetta, Critica Letteraria, December 2022](https://www.criticaletteraria.org/2022/12/darryl-jackie-ess-pidgin-edizioni-libro.html)
 - Critical essay featuring Darryl by [Kay Gabriel, Yale Review, November 2022](https://yalereview.org/article/gabriel-nevada-trans-realism)
 - Interview with [Monika Woods, Triangle House Review, January 2022](https://www.triangle.house/jackie-ess-interview)
 - Review by [Zoe Hu, The White Review, August 2021](https://www.thewhitereview.org/reviews/an-ecstasy-of-shame/)
@@ -33,10 +33,11 @@ You can also find some videos of me reading sections of the book on youtube.
 None planned for now. Stay safe.
 
 ## Contact
-I'm on mastodon [@jackiedotess@zirk.us](https://zirk.us/@jackiedotess) and tumblr [@jackiedotess](https://jackiedotess.tumblr.com/) at the moment though less active on tumblr.
+- Mastodon: [@jackiedotess@zirk.us](https://zirk.us/@jackiedotess)
+- Tumblr: [@jackiedotess](https://jackiedotess.tumblr.com/)
+- Instagram: [@jackie_ess](https://www.instagram.com/jackie_ess/)
+- Twitter: off for now.
+- Email: `[firstname].[lastname].writer@gmail.com` or `trip to taller windows at protonmail dot com (no spaces)`
+- Phone/signal: I might like talking this way most of all but I'm not posting my number, I'm sure you understand.
 
-Email is sometimes better. `[firstname].[lastname].writer@gmail.com` or `trip to taller windows at protonmail dot com (no spaces)`
-
-I'd probably talk to you on the phone but I'm not posting that here.
-
-Last Updated 2022-11-22
+Last Updated 2022-12-06
