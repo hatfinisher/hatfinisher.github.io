@@ -3,7 +3,7 @@
 ## Darryl
 I published my first novel, [Darryl](https://bookshop.org/books/darryl/9781944866846), with [Clash Books](https://www.clashbooks.com/) in May 2021. It's the story of a guy in an unusual sex lifestyle. You might relate to him.
 
-- I recorded a complete if somewhat unprofessional audiobook on [patreon](https://www.patreon.com/jackie_ess).
+- You can listen to a lo-fi audiobook on [patreon, read by me](https://www.patreon.com/jackie_ess).
 - You can also read the book [in Italian, translated by Stefano Pirone and releasted by Pidgin Edizioni.](https://www.pidgin.it/prodotto/darryl/)
 - You can also find some videos of me reading sections of the book on youtube.
 
@@ -39,5 +39,6 @@ None planned for now. Stay safe.
 - Twitter: off for now.
 - Email: `[firstname].[lastname].writer@gmail.com` or `trip to taller windows at protonmail dot com (no spaces)`
 - Phone/signal: I might like talking this way most of all but I'm not posting my number, I'm sure you understand.
+- Patreon: [@jackie_ess](https://www.patreon.com/jackie_ess). I was serializing the audiobook here and now I'm not sure what to use it for. Of course you can just support me because you'd like to. I appreciate it. But I think I'll figure out something patreon-exclusive soon.
 
 Last Updated 2022-12-06
