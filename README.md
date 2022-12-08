@@ -10,6 +10,9 @@ I published my first novel, [Darryl](https://bookshop.org/books/darryl/978194486
 ## In the Absolute Balloon
 Short story in the Chicago Review, August 2022. You can read it online. [In the Absolute Balloon](https://www.chicagoreview.org/in-the-absolute-balloon/)
 
+## Shade
+Short story in the Recluse, November 2022. You can read it online. [Shade](https://www.poetryproject.org/publications/the-recluse/issue-20/jackie-ess)
+
 ## Work in Progress
 It's better to say less, but you might see something soon.
 
