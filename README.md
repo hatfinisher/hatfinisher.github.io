@@ -1,4 +1,5 @@
 # Jackie Ess
+This website is probably more useful to me than to you, I use it to keep track of things.
 
 ## Darryl
 I published my first novel, [Darryl](https://bookshop.org/books/darryl/9781944866846), with [Clash Books](https://www.clashbooks.com/) in May 2021. It's the story of a guy in an unusual sex lifestyle. You might relate to him.
@@ -25,6 +26,7 @@ It's better to say less, but you might see something soon.
 - Interview with [Hayden Bennett, Believer Mag, July 2021](https://believermag.com/logger/an-interview-with-jackie-ess/)
 - Interview with [Violet Spurlock, Bæst Journal, August 2021](https://www.baestjournal.com/violet-spurlock-jackie-ess)
 - Interview with [Lindsay Lerman, Southwest Review, July 2021](http://southwestreview.com/one-has-to-take-care-in-handling-fire-a-conversation-with-jackie-ess/)
+- Review by [Jonno Revanche, Meanjin, Summer 2021](https://meanjin.com.au/review/not-waiting-but-wanting/)
 - Interview with [Elle Nash, The Creative Independent, July 2021](https://thecreativeindependent.com/people/writer-jackie-ess-on-making-work-that-doesnt-fit-neatly-into-categories/)
 - Interview with [Emma Rindlisbacher, The Agloe Review, June 2021](https://agloereview.substack.com/p/jackie-ess)
 - Podcast with [Tuck Woodstock, Gender Reveal, November 2021](https://gender.libsyn.com/episode-104-jackie-ess)
