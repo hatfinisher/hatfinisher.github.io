@@ -33,9 +33,9 @@ It's better to say less, but you might see something soon.
 - Podcast with [Joe Bielecki, Writing the Rapids, June 2021](http://www.noisemakerjoe.com/wtr/2021/6/30/getting-darryled-with-jackie-ess)
 
 ## Reviews by Me
-- [Peach Magazine, Favorite Books, March 2021](https://www.peachmgzn.com/post/jackie-esss-favorite-books): wrote about Chip Delany, William Leonard Pickard, William Godwin, MacDonald Harris, Samman/Charrière, Wallace Stevens, Vikram Seth.
-- [Artforum, Review of Holly Melgard's Fetal Position, December 2021](https://www.artforum.com/print/202110/jackie-ess-on-holly-melgard-s-fetal-position-87249)
-- [Bookforum, Horse's Mouth, Fall 2022](https://www.bookforum.com/print/2903/for-book-recommendations-we-went-straight-to-the-source-and-asked-twelve-writers-what-they-re-reading-now-25059): wrote a paragraph about Wilfred Bion's 1965 book, Transformations.
+- [Peach Magazine, Favorite Books, March 2021](https://www.peachmgzn.com/post/jackie-esss-favorite-books): wrote about Chip Delany, William Leonard Pickard, William Godwin, MacDonald Harris, Samman/Charrière, Wallace Stevens, Vikram Seth. [archive link](https://web.archive.org/web/20221228053310/https://www.peachmgzn.com/post/jackie-esss-favorite-books)
+- [Artforum, Review of Holly Melgard's Fetal Position, December 2021](https://www.artforum.com/print/202110/jackie-ess-on-holly-melgard-s-fetal-position-87249) [archive link](https://web.archive.org/web/20211202005222/https://www.artforum.com/print/202110/jackie-ess-on-holly-melgard-s-fetal-position-87249)
+- [Bookforum, Horse's Mouth, Fall 2022](https://www.bookforum.com/print/2903/for-book-recommendations-we-went-straight-to-the-source-and-asked-twelve-writers-what-they-re-reading-now-25059): wrote a paragraph about Wilfred Bion's 1965 book, Transformations. [archive link](https://web.archive.org/web/20220906153851/https://www.bookforum.com/print/2903/for-book-recommendations-we-went-straight-to-the-source-and-asked-twelve-writers-what-they-re-reading-now-25059)
 
 ## Events
 None planned for now. Stay safe.
