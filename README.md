@@ -18,6 +18,7 @@ Short story in the Recluse, November 2022. You can read it online. [Shade](https
 It's better to say less, but you might see something soon.
 
 ## Reviews, Interviews, Podcasts
+- Panel with Christina Thyssen and James Searle at [the Tautegory Project, April 2023](https://www.youtube.com/watch?v=NXoluFWAJTw)
 - Review of Italian edition of Darryl (trans. Stefano Pirone) by [Deborah D'Addetta, Critica Letteraria, December 2022](https://www.criticaletteraria.org/2022/12/darryl-jackie-ess-pidgin-edizioni-libro.html)
 - Critical essay featuring Darryl by [Kay Gabriel, Yale Review, November 2022](https://yalereview.org/article/gabriel-nevada-trans-realism)
 - Interview with [Monika Woods, Triangle House Review, January 2022](https://www.triangle.house/jackie-ess-interview)
@@ -34,8 +35,8 @@ It's better to say less, but you might see something soon.
 
 ## Reviews by Me
 - [Peach Magazine, Favorite Books, March 2021](https://www.peachmgzn.com/post/jackie-esss-favorite-books): wrote about Chip Delany, William Leonard Pickard, William Godwin, MacDonald Harris, Samman/Charrière, Wallace Stevens, Vikram Seth. [archive link](https://web.archive.org/web/20221228053310/https://www.peachmgzn.com/post/jackie-esss-favorite-books)
-- [Artforum, Review of Holly Melgard's Fetal Position, December 2021](https://www.artforum.com/print/202110/jackie-ess-on-holly-melgard-s-fetal-position-87249) [archive link](https://web.archive.org/web/20211202005222/https://www.artforum.com/print/202110/jackie-ess-on-holly-melgard-s-fetal-position-87249)
-- [Bookforum, Horse's Mouth, Fall 2022](https://www.bookforum.com/print/2903/for-book-recommendations-we-went-straight-to-the-source-and-asked-twelve-writers-what-they-re-reading-now-25059): wrote a paragraph about Wilfred Bion's 1965 book, Transformations. [archive link](https://web.archive.org/web/20220906153851/https://www.bookforum.com/print/2903/for-book-recommendations-we-went-straight-to-the-source-and-asked-twelve-writers-what-they-re-reading-now-25059)
+- [Artforum, Review of Holly Melgard's Fetal Position, December 2021](https://www.artforum.com/print/202110/jackie-ess-on-holly-melgard-s-fetal-position-87249)
+- [Bookforum, Horse's Mouth, Fall 2022](https://www.bookforum.com/print/2903/for-book-recommendations-we-went-straight-to-the-source-and-asked-twelve-writers-what-they-re-reading-now-25059): wrote a paragraph about Wilfred Bion's 1965 book, Transformations.
 
 ## Events
 None planned for now. Stay safe.
