@@ -42,10 +42,6 @@ It's better to say less, but you might see something soon.
 None planned for now. Stay safe.
 
 ## Contact
-- Mastodon: [@jackiedotess@zirk.us](https://zirk.us/@jackiedotess)
-- Tumblr: [@jackiedotess](https://jackiedotess.tumblr.com/)
-- Instagram: [@jackie_ess](https://www.instagram.com/jackie_ess/)
-- Twitter: [@jackie_ess](https://www.twitter.com/jackie_ess)
 - Email: `[firstname].[lastname].writer@gmail.com` or `trip to taller windows at protonmail dot com (no spaces)`
 - Phone/signal: I might like talking this way most of all but I'm not posting my number, I'm sure you understand.
 - Patreon: [@jackie_ess](https://www.patreon.com/jackie_ess). I was serializing the audiobook here and now I'm not sure what to use it for. Of course you can just support me because you'd like to. I appreciate it. But I think I'll figure out something patreon-exclusive soon.
