@@ -1,6 +1,11 @@
 # Jackie Ess
 This website is probably more useful to me than to you, I use it to keep track of things.
 
+## Newsletter!
+I've been experimenting with a newsletter lately, it contains a lot of my readings and some of my attempts at translation, and some essay-like thoughts. Check it out, maybe:
+
+[Jackie's World](https://buttondown.email/jackie_ess) 
+
 ## Darryl
 I published my first novel, [Darryl](https://bookshop.org/books/darryl/9781944866846), with [Clash Books](https://www.clashbooks.com/) in May 2021. It's the story of a guy in an unusual sex lifestyle. You might relate to him.
 
