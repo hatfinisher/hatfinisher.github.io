@@ -29,7 +29,7 @@ It's better to say less, but you might see something soon.
 - Interview with [Monika Woods, Triangle House Review, January 2022](https://www.triangle.house/jackie-ess-interview)
 - Review by [Zoe Hu, The White Review, August 2021](https://www.thewhitereview.org/reviews/an-ecstasy-of-shame/)
 - Review by [Dominic Fox, Review 31, June 2021](http://review31.co.uk/article/view/777/a-pair-of-ragged-claws) 
-- Interview with [Hayden Bennett, Believer Mag, July 2021](https://believermag.com/logger/an-interview-with-jackie-ess/)
+- Interview with [Hayden Bennett, Believer Mag, July 2021](https://web.archive.org/web/20210730184251/https://believermag.com/logger/an-interview-with-jackie-ess/)
 - Interview with [Violet Spurlock, Bæst Journal, August 2021](https://www.baestjournal.com/violet-spurlock-jackie-ess)
 - Interview with [Lindsay Lerman, Southwest Review, July 2021](http://southwestreview.com/one-has-to-take-care-in-handling-fire-a-conversation-with-jackie-ess/)
 - Review by [Jonno Revanche, Meanjin, Summer 2021](https://meanjin.com.au/review/not-waiting-but-wanting/)
